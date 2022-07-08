@@ -17,7 +17,7 @@ Cursos de Aperfeiçoamento
 
 Honra ao mérito: Prêmio ganho por bons serviços prestados durante o serviço militar obrigatório no TG 02-055 no ano de 2017.
 
-Prêmio de Louvor: Prêmio cedido pelo poder legislativo da cidade de Santa Cruz do Rio Pardo no ano de 2017 em reconhecimento aos bons serviços prestados á população nas companhas e eventos promovidos pelo TG 02-055.
+Prêmio de Louvor: Prêmio cedido pelo poder legislativo da cidade de Santa Cruz do Rio Pardo no ano de 2017 em reconhecimento aos bons serviços prestados durante o serviço militar á população nas companhas e eventos promovidos pelo TG 02-055.
 
 ## Contato 🏡
 
